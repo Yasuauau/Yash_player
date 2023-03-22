@@ -13,7 +13,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴛsᴏ sʏᴍᴘʜ
 
 
 <p align="center">
-  <img src="https://te.legra.ph/file/57ba5962f44d06595b353.jpg">
+  <img src="https://graph.org/file/2b60370489cf4dea5768c.jpg
 </p>
 
 <p align="center">

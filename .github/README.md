@@ -13,7 +13,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴛsᴏ sʏᴍᴘʜ
 
 
 <p align="center">
-  <img src="https://graph.org/file/2b60370489cf4dea5768c.jpg
+  <img src="https://graph.org/file/7569ed33439186bc2a92d.jpg
 </p>
 
 <p align="center">

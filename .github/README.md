@@ -13,7 +13,7 @@ _**(https://t.me/yash__bot)**_
 
 
 <p align="center">
-  <img src="https://graph.org/file/7569ed33439186bc2a92d.jpg
+  <img src="https://graph.org/file/7569ed33439186bc2a92d.jpg>
 </p>
 
 <p align="center">

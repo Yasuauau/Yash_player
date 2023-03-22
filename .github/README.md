@@ -8,7 +8,7 @@
   <img src="https://graph.org/file/7199cd472929ec9f2ff0e.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴛsᴏ sʏᴍᴘʜᴏɴʏ ʙᴏᴛ](https://t.me/tso_symphony_bot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴛsᴏ sʏᴍᴘʜᴏɴʏ ʙᴏᴛ](https://t.me/yash__bot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 

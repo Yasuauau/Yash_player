@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://graph.org/file/2b60370489cf4dea5768c.jpg
+  <img src="https://graph.org/file/7199cd472929ec9f2ff0e.jpg">
 </p>
 
 _**(https://t.me/yash__bot)**_
